@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @ineedhelponmytest
 - 👀 I’m interested in Music and coding
 - 🌱 I’m currently learning alot of stuff
-- 💞️ I’m looking to collaborate on nothing
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have a SoundCloud, the username is 1dkaa
 
